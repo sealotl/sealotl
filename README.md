@@ -1,3 +1,4 @@
-                   if you really care, say "i want to be with you all the time",
-<img width="1200" height="1486" alt="IMG_4052" src="https://github.com/user-attachments/assets/a1600037-d2ea-4d0e-847e-7ba8f25953f8" />
+<img width="1203" height="738" alt="IMG_4571" src="https://github.com/user-attachments/assets/a3f68442-a19a-454f-8f42-d0d73908aac6" />
+
+
 
