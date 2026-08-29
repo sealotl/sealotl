@@ -1,4 +1,2 @@
 <img width="860" height="479" alt="IMG_5171" src="https://github.com/user-attachments/assets/2b65c4da-6ac5-46b4-95a0-20a34ea423b0" />
 
-<h4 style="text-align:center;">we probably met, you just forgot LMAO</p>
-
